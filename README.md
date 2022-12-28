@@ -9,4 +9,4 @@ Valla A Configuracion Del Juego-Arriba A La Izquierda Del Comienzo.
 Valla A Una Seccion Llamada Mod O Algo Parecido Ahi Deveria Salir El Modificador Activo.
 Si Sale Activo A Disfrutarlo!!!.
 
-Si Tiene Alguna Duda Puede Escribirme A Mi Discord / ANDRES#2524
+Si Tiene Alguna Duda Puede Escribirme A Mi Discord / Kotek#254
